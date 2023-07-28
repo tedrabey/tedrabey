@@ -1,1 +1,1 @@
-                                                        tedrabey doesn't have any public repositories yet.
+                              tedrabey doesn't have any public repositories yet.
